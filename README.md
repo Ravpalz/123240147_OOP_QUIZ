@@ -1,1 +1,1 @@
-# Quiz
+# Aku menyerah mas, capek
